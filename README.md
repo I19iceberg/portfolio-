@@ -10,11 +10,16 @@
 Welcome to Iceport4lio! 
 
 ![image](https://res.craft.do/user/full/4abb632f-2b5e-e78d-3c7f-ebd3ea56d0a6/doc/4202149B-AE2A-48AE-8827-1842FA72581D/CFCCC467-A199-4109-8AD4-83BBCD3BD8CC_2/LYNTGgVEAd31Qp9gGb9eWbftZoIu6TIMxRugdQw4bLIz/Iceberg%20-ryb-neutrals.png)
-You 
 
-Here you will find a collection of my work and projects that showcase my skills and experience in the field. This portfolio is designed to give you a glimpse into my background and abilities, and to provide examples of the type of work that I can do. Please feel free to explore the different sections of my portfolio and don't hesitate to contact me with any questions or inquiries. Thank you for visiting
+visiting
 
  ![image](https://docs.craft.do/editor/d/4abb632f-2b5e-e78d-3c7f-ebd3ea56d0a6/4202149B-AE2A-48AE-8827-1842FA72581D)
+
+Here you will find a collection of my work and projects that showcase my skills and experience in the field. This portfolio is designed to give you a glimpse into my background and abilities, and to provide examples of the type of work that I can do. Please feel free to explore the different sections of my portfolio and don't hesitate to contact me with any questions or inquiries. Thank you for 
+
+![image](https://res.craft.do/user/full/4abb632f-2b5e-e78d-3c7f-ebd3ea56d0a6/doc/4202149B-AE2A-48AE-8827-1842FA72581D/CFCCC467-A199-4109-8AD4-83BBCD3BD8CC_2/LYNTGgVEAd31Qp9gGb9eWbftZoIu6TIMxRugdQw4bLIz/Iceberg%20-ryb-neutrals.png)
+
+
 
 ----
 
