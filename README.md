@@ -85,6 +85,8 @@ Hi! My name be Ice Iceberg and I be 24 years old. I be self-taught website devel
 
 
 
-Here you will find a collection of my w
+Here you will find my *certificate*![image](https://github.com/I19iceberg/portfolio-/blob/f61596f962c6f57f24d8bb40a3d21475e41778d3/8CF8C081-7D61-460B-AF9B-E2FB7E242382.png)
+
+
 ![image](https://res.craft.do/user/full/4abb632f-2b5e-e78d-3c7f-ebd3ea56d0a6/doc/4202149B-AE2A-48AE-8827-1842FA72581D/CFCCC467-A199-4109-8AD4-83BBCD3BD8CC_2/LYNTGgVEAd31Qp9gGb9eWbftZoIu6TIMxRugdQw4bLIz/Iceberg%20-ryb-neutrals.png)
 
